@@ -1,1 +1,0 @@
-# sengketatanahjawabarat.github.io
